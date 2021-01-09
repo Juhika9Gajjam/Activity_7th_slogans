@@ -1,0 +1,1 @@
+# Activity_7th_slogans
